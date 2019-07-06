@@ -1,2 +1,2 @@
 # first_test
-lol go knows
+lol god knows
